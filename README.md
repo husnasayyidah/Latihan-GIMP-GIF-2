@@ -1,0 +1,1 @@
+# Latihan-GIMP-GIF-2
